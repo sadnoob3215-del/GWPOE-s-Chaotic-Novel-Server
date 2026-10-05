@@ -1,1 +1,0 @@
-# GWPOE-s-Chaotic-Novel-Server
